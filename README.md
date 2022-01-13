@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @AntBioticsCare
+- 👀 I’m interested in being an entrepreneur 
+- 🌱 i'm currently making an website
+- 💞️ I’m looking to collaborate on app development for shopping
+- 📫 How to reach me /gmail-antbioticscare@gmail.com/ /discord-
+- 
